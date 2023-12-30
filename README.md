@@ -9,5 +9,6 @@
 5. [Five Nights at Freddy's](https://www.youtube.com/watch?v=EuuZg3TUOlU)
 6. [An Ode to the 80s](https://www.youtube.com/watch?v=EuuZg3TUOlU)
 7. [A Silly Playlist For Silly People](https://www.youtube.com/watch?v=elaSoKe1gFw)
+8. [ALL MY FELLAS PERFECT LOOP (1 HOUR)](https://www.youtube.com/watch?v=l78x5cADWJM)
 
 <hide>[Initial Access Toolkit](https://www.youtube.com/watch?v=SXmv8quf_xM)</hide>
